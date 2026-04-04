@@ -94,6 +94,6 @@ The river of Egypt to the Euphrates. Not through war. Through architecture.
 
 The text described it. The secular logic produced it. Both arrived at the same place.
 
-That is not coincidence. It is the beginning of something that the next several chapters will make increasingly difficult to explain any other way.
+That is not coincidence. It is the beginning of something that is increasingly difficult to explain any other way.
 
 ---
