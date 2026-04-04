@@ -4,7 +4,7 @@
 
 *The missiles were still falling when the world changed.*
 
-*Not the missiles over Tehran — those had been falling for weeks. The world changed in a boardroom in Brussels, a parliament in Riyadh, and a closed session in Beijing where men who had spent their careers calculating power looked at each other and understood that the map they had memorized no longer existed.*
+*Not the missiles over Tehran — those had been falling for weeks. The world changed in boardrooms in Moscow, a parliament in Riyadh, and a closed session in Beijing where men who had spent their careers calculating power looked at each other and understood that the map they had memorized no longer existed.*
 
 ---
 
