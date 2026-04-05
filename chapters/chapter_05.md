@@ -100,6 +100,4 @@ The answer does not appear in the Congressional hearings. It does not appear in 
 
 A world pre-conditioned to accept that non-human beings exist, that they have been present on earth throughout human history, that they possess capabilities that exceed human technology — that is a world prepared for something specific.
 
-The next chapter names what it is prepared for.
-
 ---
