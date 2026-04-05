@@ -96,6 +96,4 @@ The secular world is being prepared to receive them as saviors.
 
 The text written thousands of years ago describes what they actually are.
 
-The chapter that follows describes what happens when they arrive.
-
 ---
