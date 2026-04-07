@@ -174,8 +174,6 @@ Not what began in 2026.
 
 Not how the conditions for it were created.
 
-But whether the sequence now unfolding — across years and decades, reshaping a region — emerged from the accumulated decisions of rational actors pursuing national interests,
-
-or whether it had a different kind of author.
+But whether the sequence now unfolding — across years and decades, reshaping a region — emerged from the accumulated decisions of rational actors pursuing national interests.
 
 ---
