@@ -178,6 +178,4 @@ But whether the sequence now unfolding — across years and decades, reshaping a
 
 or whether it had a different kind of author.
 
-That question will drive everything that follows.
-
 ---
