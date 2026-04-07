@@ -50,7 +50,7 @@ Iran had been the primary organizing adversary for American Middle Eastern strat
 
 By the spring of 2026, that architecture had been substantially dismantled, as described in the previous chapter. The proxies had been degraded. The nuclear program had been physically destroyed. The primary threat that had organized American Middle Eastern strategy for forty-five years had been neutralized — not by American action, but by Israeli action conducted with American backing.
 
-The strategic logic was not subtle. If the threat that justified American presence had been removed — and removed by a regional partner willing and able to carry the operational burden — the case for maintaining that presence became very difficult to make to a domestic audience that had been asking, for years, what exactly the troops were doing over there.
+What followed would take years to fully materialize. But the strategic logic was now in motion, and the direction was clear. If the threat that justified American presence had been removed — and removed by a regional partner willing and able to carry the operational burden — the case for maintaining that presence became very difficult to make to a domestic audience that had been asking, for years, what exactly the troops were doing over there.
 
 The withdrawal didn't come with an announcement. It came in the form of rotational deployments that didn't rotate back, bases that were "consolidated" into regional hubs, carrier groups that were "reoriented" toward Pacific contingencies. The vocabulary of managed drawdown is specific and practiced.
 
@@ -104,7 +104,7 @@ The pitch had evolved.
 
 In 2020, it was commercial and diplomatic: normalization opens trade, enables tourism, creates technology partnerships, and provides political access in Washington that the Israeli relationship confers. The pitch was for the benefits of partnership in a period of relative stability.
 
-By 2026, it carried different weight.
+By 2026, it carried different weight. And by the early 2030s, it would carry the weight of demonstrated necessity.
 
 It was a security pitch, made in an environment where the alternative — continued dependence on American guarantees that were visibly being renegotiated — had become genuinely uncertain.
 
@@ -152,16 +152,16 @@ The strategic logic was not opaque to them. A US-backed Israel controlling Gulf 
 
 The energy leverage Moscow had cultivated across decades of careful relationship-building was eroding. The trade routes China had been investing in through Belt and Road were being secured by a power whose strategic alignment ran directly counter to Chinese interests.
 
-In Beijing, strategists were calculating what it would eventually cost to recover what was being lost.
+In Beijing, strategists were calculating what it would eventually cost to recover what was being lost. The integration was not yet complete — that would take years, perhaps a decade. But the trajectory was clear, and trajectories, once established at this scale, are difficult to reverse through anything short of direct confrontation.
 
-In Moscow, the same calculation was being run. The conclusions were similar. The timelines were longer than anyone was saying publicly.
+In Moscow, the same calculation was being run. The conclusions were similar.
 
-But both capitals understood that a prosperous, secure, regionally dominant Israel — dwelling safely at the center of a new order — was an outcome that could not be allowed to stand indefinitely.
+Both capitals understood that a prosperous, secure, regionally dominant Israel — dwelling safely at the center of a new order — was an outcome that could not be allowed to stand indefinitely.
 
 They would need to do something about it.
 
 Not yet.
 
-But eventually.
+But the window for action would not stay open forever.
 
 ---

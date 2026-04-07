@@ -28,7 +28,7 @@ The mechanism is not occupation. It is integration.
 
 And integration, pursued consistently and at sufficient depth, produces outcomes that are functionally indistinguishable from control.
 
-Consider the architecture as it existed by 2026.
+Consider the architecture as it was taking shape through the late 2020s.
 
 Trade between Israel and Gulf states, conducted for years through informal channels that both sides had reasons to understate, had been formalized and scaled following the Abraham Accords. Israeli technology companies operated openly in the UAE and Bahrain. Israeli agricultural technology — developed under the specific constraint of limited water and arid conditions, making it directly applicable to Gulf environments — was being deployed across the Arabian Peninsula. Israeli cybersecurity firms were operating contracts with Gulf governments that embedded Israeli personnel and Israeli systems into the digital infrastructure of those states.
 
@@ -60,7 +60,7 @@ Israel had established, through consistent action, a de facto veto over what mil
 
 The veto is a form of control. It does not require governing the territory. It requires only the capability and willingness to act, demonstrated consistently enough that potential violators have updated their behavior accordingly. By 2026, no serious actor was moving significant military hardware through Syrian territory without calculating Israeli response. That calculation — embedded in everyone else's planning — was what effective control looked like in this context.
 
-Lebanon had been more direct. The Hezbollah campaign of 2024-2025 accomplished not just the military degradation of the organization but the effective end of Hezbollah's role as a state-within-a-state in Lebanese politics. The Lebanese government that emerged was navigating relationships with its neighbors from a position of weakness that made accommodation with Israeli interests a practical necessity rather than an ideological choice. Israeli investment in Lebanese reconstruction — structured to build constituencies within Lebanese politics and business — was creating the same dynamic in Beirut that Gulf sovereign wealth had created in Riyadh and Abu Dhabi.
+Lebanon had been more direct. The Hezbollah campaign of 2024-2025 accomplished not just the military degradation of the organization but the effective end of Hezbollah's role as a state-within-a-state in Lebanese politics. The Lebanese government that emerged spent the following years navigating relationships with its neighbors from a position of weakness that made accommodation with Israeli interests a practical necessity rather than an ideological choice. Israeli investment in Lebanese reconstruction — structured to build constituencies within Lebanese politics and business — was creating the same dynamic in Beirut that Gulf sovereign wealth had created in Riyadh and Abu Dhabi over the preceding decade.
 
 Material interest replacing ideological hostility.
 
@@ -74,7 +74,7 @@ The 1994 peace treaty had made the Jordanian-Israeli relationship functional if 
 
 The Abraham Accords had complicated Jordan's position. Normalization between Israel and Gulf states that had previously pointed to the Palestinian question as a precondition for broader engagement removed one of Jordan's diplomatic cards. Amman had spent years positioning itself as a necessary intermediary in any regional settlement. The Accords demonstrated that the Gulf states had decided to move without that settlement being reached.
 
-By 2026, Jordan's economic dependence on Gulf financial support, Israeli water and energy cooperation, and American aid had produced constraints on Jordanian foreign policy that left limited room for positions that any of those parties found seriously threatening. Not integration in the way Gulf states were becoming — but sufficiently embedded in the regional economic network that sharp divergence from the emerging order's logic was not a realistic option.
+By the early 2030s, Jordan's economic dependence on Gulf financial support, Israeli water and energy cooperation, and American aid had produced constraints on Jordanian foreign policy that left limited room for positions that any of those parties found seriously threatening. Not integration in the way Gulf states were becoming — but sufficiently embedded in the regional economic network that sharp divergence from the emerging order's logic was not a realistic option.
 
 ---
 
@@ -96,7 +96,7 @@ It had been achieved without military conquest.
 
 A nation of ten million people had not conquered the region. It had made itself indispensable to the region's security, essential to its economic development, and embedded in the infrastructure of its governance in ways that would take generations to unwind.
 
-Secular analysts observing Israel's trajectory in 2026 kept reaching for a specific word. Stable. Secure. Established. A nation that had neutralized its most dangerous regional adversary, embedded its relationships so deeply into the regional architecture that the cost of confronting it had become prohibitive, and was being welcomed — instrumentally, but genuinely — into the economic and security frameworks of states that had formally refused to acknowledge its existence within living memory.
+Secular analysts observing Israel's trajectory through the late 2020s and into the early 2030s kept reaching for a specific word. Stable. Secure. Established. A nation that had neutralized its most dangerous regional adversary, embedded its relationships so deeply into the regional architecture that the cost of confronting it had become prohibitive, and was being welcomed — instrumentally, but genuinely — into the economic and security frameworks of states that had formally refused to acknowledge its existence within living memory.
 
 The ancient Hebrew word for that condition is *betach*.
 

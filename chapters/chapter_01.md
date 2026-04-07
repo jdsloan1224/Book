@@ -12,9 +12,9 @@ In Moscow, senior officials sat in closed sessions, reviewing intelligence that 
 
 No announcement marked the moment. No treaty was signed. No flag was raised.
 
-But sometime in the spring of 2026, the balance of power in the Middle East shifted.
+But sometime in the spring of 2026, the balance of power in the Middle East began to shift.
 
-Quietly. Decisively. And, for most of the world, almost invisibly.
+Not all at once. Not visibly to most of the world. What happened in 2026 was not a completion — it was an inflection point. The moment when a sequence that had been building quietly for years became impossible for serious analysts to ignore.
 
 ---
 
@@ -102,7 +102,7 @@ It was a shift in perception.
 
 For decades, the security architecture of the Middle East had rested on a single assumption: that the United States would act as the ultimate guarantor. That its presence—military, political, and economic—would define the limits of what was possible.
 
-By 2026, that assumption was already weakening.
+By 2026, that assumption had begun to weaken — visibly, structurally, in ways that would take years to fully work through the region's security architecture.
 
 American policy had begun to change, not through dramatic announcements, but through recalibration. Commitments became conditional. Support became transactional. The language shifted first. The posture followed.
 
@@ -156,13 +156,13 @@ From inside any given week, it looks like escalation and de-escalation. Diplomat
 
 Step back far enough, and the image clarifies.
 
-Since October 7, 2023, Israel has been in near-continuous military engagement across multiple theaters simultaneously. It has systematically neutralized each of the major forces Iran had positioned as its regional deterrence architecture. It has operated with American backing but not American constraint. It has survived international legal proceedings, diplomatic condemnation, and sustained political pressure on its partner governments—and none of it altered the operational trajectory by more than minor degrees.
+Since October 7, 2023, Israel has been in near-continuous military engagement across multiple theaters simultaneously. It has systematically neutralized each of the major forces Iran had positioned as its regional deterrence architecture. It has operated with American backing but not American constraint. It has survived international legal proceedings, diplomatic condemnation, and sustained political pressure on its partner governments — and none of it altered the operational trajectory by more than minor degrees.
 
 Every move succeeded. And each success reinforced the doctrine that produced it.
 
-The Abraham Accords laid the foundation. The military campaigns cleared the obstacles. The technology created the dependencies. The intelligence apparatus maintained the political conditions necessary for Western support.
+The Abraham Accords laid the foundation. The military campaigns cleared the obstacles. The technology began creating the dependencies. The intelligence apparatus maintained the political conditions necessary for Western support.
 
-Each element reinforced the others in a sequence whose internal logic, once visible, has the quality of something that was built rather than stumbled upon.
+By 2026, the sequence was underway. By the early 2030s, analysts would look back and understand what had been set in motion.
 
 ---
 
@@ -170,13 +170,13 @@ This is where conventional analysis ends.
 
 Because the question it raises is one that conventional analysis is not designed to answer.
 
-Not what happened in 2026.
+Not what began in 2026.
 
 Not how the conditions for it were created.
 
-But whether those conditions emerged from the accumulated decisions of rational actors pursuing national interests in a turbulent world—
+But whether the sequence now unfolding — across years and decades, reshaping a region — emerged from the accumulated decisions of rational actors pursuing national interests,
 
-or whether the sequence had a different kind of author.
+or whether it had a different kind of author.
 
 That question will drive everything that follows.
 
