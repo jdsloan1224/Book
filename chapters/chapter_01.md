@@ -2,6 +2,18 @@
 
 ---
 
+*The brief I presented that morning in March was the product of eighteen months of work. I had pulled every thread I could find — military assessments, economic data, intelligence community readouts, diplomatic cables, think tank analysis from three continents. I had stress-tested the conclusions against every counter-argument I could construct.*
+
+*What I handed that room was as clean and rigorous as anything I'd produced in twenty-two years.*
+
+*What I didn't hand them was an explanation for why the pattern I was describing felt, in some register I couldn't name, like it was already finished. Like I wasn't analyzing something unfolding. Like I was describing something that had already been decided.*
+
+*I didn't include that in the brief. Analysts don't traffic in feelings.*
+
+*But it was there.*
+
+---
+
 The missiles were still falling when the world changed.
 
 Not the ones over Tehran—those had been falling for weeks. Analysts had already begun to normalize them, the way repeated crises eventually become background noise. What mattered wasn't the explosions themselves.
@@ -175,5 +187,25 @@ Not what began in 2026.
 Not how the conditions for it were created.
 
 But whether the sequence now unfolding — across years and decades, reshaping a region — emerged from the accumulated decisions of rational actors pursuing national interests.
+
+Or whether it had a different kind of author.
+
+That question will drive everything that follows.
+
+---
+
+*I finished writing that last line of the brief at 11:47 PM the night before the presentation.*
+
+*I remember staring at it for a long time.*
+
+*I'd written "rational actors pursuing national interests" because that's the language analysts use. It's precise. It's defensible. It doesn't reach.*
+
+*But I'd added the second line — the one about a different kind of author — because something in the data kept pulling toward it and I couldn't make it stop.*
+
+*I deleted it before I printed the brief.*
+
+*Standing in front of that room the next morning, I was glad I had.*
+
+*Two weeks later, sitting with Ezekiel 38 open on my laptop at two in the morning, I wished I hadn't.*
 
 ---
