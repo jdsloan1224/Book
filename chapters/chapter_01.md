@@ -16,11 +16,11 @@
 
 The missiles were still falling when the world changed.
 
-Not the ones over Tehran—those had been falling for weeks. Analysts had already begun to normalize them, the way repeated crises eventually become background noise. What mattered wasn't the explosions themselves.
+Not the ones over Tehran — those had been falling for weeks. Analysts had already begun to normalize them, the way repeated crises eventually become background noise. What mattered wasn't the explosions themselves.
 
 It was where the real conversations were happening.
 
-In Moscow, senior officials sat in closed sessions, reviewing intelligence that didn't match the assumptions they had carried for decades. In Riyadh, advisors to the royal court recalculated security models that had, until recently, depended on a single external guarantor. In Beijing, strategists stared at a map they knew well—and began to understand it was already obsolete.
+In Moscow, senior officials sat in closed sessions, reviewing intelligence that didn't match the assumptions they had carried for decades. In Riyadh, advisors to the royal court recalculated security models that had, until recently, depended on a single external guarantor. In Beijing, strategists stared at a map they knew well — and began to understand it was already obsolete.
 
 No announcement marked the moment. No treaty was signed. No flag was raised.
 
@@ -34,7 +34,7 @@ For years, the consensus had been stable.
 
 Iran was the constraint.
 
-Not simply a regional rival, but a structural barrier—an embedded force that prevented any true realignment of the Middle East. Its network of proxies, its missile capabilities, and its intelligence reach created a deterrence model that had held for decades. Any attempt to challenge it directly would trigger consequences too costly to justify.
+Not simply a regional rival, but a structural barrier — an embedded force that prevented any true realignment of the Middle East. Its network of proxies, its missile capabilities, and its intelligence reach created a deterrence model that had held for decades. Any attempt to challenge it directly would trigger consequences too costly to justify.
 
 That was the theory.
 
@@ -46,7 +46,7 @@ Instead, targets were hit with a level of precision that suggested something far
 
 It suggested prior access.
 
-Command structures failed before they could respond. Defensive systems were bypassed before they could activate. Key figures were eliminated with timing that implied their locations were known in advance—not approximately, but exactly.
+Command structures failed before they could respond. Defensive systems were bypassed before they could activate. Key figures were eliminated with timing that implied their locations were known in advance — not approximately, but exactly.
 
 This was not just a strike.
 
@@ -54,7 +54,7 @@ It was the visible edge of something that had been in place long before the firs
 
 ---
 
-To understand how that became possible, you have to go back—not to the war itself, but to a moment most observers dismissed at the time.
+To understand how that became possible, you have to go back — not to the war itself, but to a moment most observers dismissed at the time.
 
 September 15, 2020.
 
@@ -66,7 +66,7 @@ It looked like a photo opportunity.
 
 But beneath the optics, something more consequential was taking shape.
 
-The agreements did not simply establish formal relations. They opened channels—commercial, technological, and, most importantly, strategic. Intelligence sharing became easier to formalize. Defense cooperation, previously conducted through indirect or unofficial means, could now operate in the open.
+The agreements did not simply establish formal relations. They opened channels — commercial, technological, and, most importantly, strategic. Intelligence sharing became easier to formalize. Defense cooperation, previously conducted through indirect or unofficial means, could now operate in the open.
 
 And once those channels existed, they began to deepen.
 
@@ -74,11 +74,21 @@ Quietly. Systematically. Without attracting the kind of attention that would hav
 
 ---
 
+*I had included the Abraham Accords in the brief, of course. It would have been malpractice not to. But when I first analyzed them in 2020, I'd filed them under the same category most serious analysts did — significant but limited. A political win for the administration that had brokered them. A commercial opening. A modest step toward normalization that didn't fundamentally alter the region's security architecture.*
+
+*It was only in the reanalysis — working backward from what actually happened — that I understood what I'd missed.*
+
+*The Accords weren't a step. They were a foundation.*
+
+*The entire structure that followed had been built on top of them.*
+
+---
+
 For the Gulf states, the calculation had always been constrained by a single variable.
 
 Iran.
 
-Any movement toward open alignment with Israel carried a cost. Iranian missiles could reach their capitals. Iranian proxies operated within striking distance of critical infrastructure. Escalation was not theoretical—it was expected.
+Any movement toward open alignment with Israel carried a cost. Iranian missiles could reach their capitals. Iranian proxies operated within striking distance of critical infrastructure. Escalation was not theoretical — it was expected.
 
 So the cooperation remained largely invisible.
 
@@ -112,7 +122,7 @@ It was a shift in perception.
 
 ---
 
-For decades, the security architecture of the Middle East had rested on a single assumption: that the United States would act as the ultimate guarantor. That its presence—military, political, and economic—would define the limits of what was possible.
+For decades, the security architecture of the Middle East had rested on a single assumption: that the United States would act as the ultimate guarantor. That its presence — military, political, and economic — would define the limits of what was possible.
 
 By 2026, that assumption had begun to weaken — visibly, structurally, in ways that would take years to fully work through the region's security architecture.
 
@@ -122,7 +132,7 @@ And into that space, something else moved.
 
 Israel had always been a capable regional actor. That was not new. What changed was how that capability was perceived.
 
-Missile defense systems that had once been viewed as localized solutions began to look like exportable infrastructure. Intelligence operations that had been impressive in isolation started to suggest something broader—something systemic.
+Missile defense systems that had once been viewed as localized solutions began to look like exportable infrastructure. Intelligence operations that had been impressive in isolation started to suggest something broader — something systemic.
 
 For the Gulf states, the conclusion was not ideological. It was practical.
 
@@ -144,7 +154,7 @@ Because the outcome, taken at face value, does not align cleanly with the inputs
 
 Israel is a country of roughly ten million people. Its economic and military resources, while advanced, do not match those of the major global powers. It exists in a region that has historically been hostile, unstable, and resistant to external control.
 
-By standard measures—population, geography, resource base—the scale of what was achieved in this period should not have been possible. Not this quickly. Not this comprehensively. And not without triggering the kind of systemic backlash that similar shifts have produced throughout history.
+By standard measures — population, geography, resource base — the scale of what was achieved in this period should not have been possible. Not this quickly. Not this comprehensively. And not without triggering the kind of systemic backlash that similar shifts have produced throughout history.
 
 So analysts describe what happened.
 
@@ -152,11 +162,9 @@ They point to technology. To doctrine. To intelligence capabilities developed ov
 
 But they leave a gap.
 
-A gap between what the inputs should have produced—and what actually occurred.
+A gap between what the inputs should have produced — and what actually occurred.
 
 Part of that gap is explained by intelligence. The operational record of Israel's intelligence services is, by any objective measure, without parallel among nations of comparable size. The physical theft of Iran's complete nuclear archive from a warehouse in Tehran. The Stuxnet operation, which destroyed Iranian centrifuges from the inside without a single soldier crossing a border. The simultaneous compromise of an entire organization's communication network in a single afternoon.
-
-These are not the achievements of a regional power punching above its weight. They suggest something closer to a different category of capability altogether—one that doesn't map neatly onto the standard metrics of national power.
 
 These are not the achievements of a regional power punching above its weight. They suggest a different category of capability altogether — one that doesn't map neatly onto the standard metrics of national power, and that conventional analysis has no clean framework for explaining.
 
@@ -178,6 +186,20 @@ By 2026, the sequence was underway. By the early 2030s, analysts would look back
 
 ---
 
+*This is where I stopped, the first night I read Ezekiel 38.*
+
+*Not because I'd found what I was looking for. Because I'd found something I hadn't.*
+
+*The text described a coalition moving against Israel from the north — against a nation dwelling securely. Prosperously. A nation that had, in the language of the ancient text, stopped looking over its shoulder.*
+
+*I had just spent eighteen months documenting the secular mechanism by which that condition was being constructed.*
+
+*I sat with that for a long time.*
+
+*Then I kept reading.*
+
+---
+
 This is where conventional analysis ends.
 
 Because the question it raises is one that conventional analysis is not designed to answer.
@@ -194,7 +216,7 @@ That question will drive everything that follows.
 
 ---
 
-*I finished writing that last line of the brief at 11:47 PM the night before the presentation.*
+*I finished writing that last line of the original brief at 11:47 PM the night before the presentation.*
 
 *I remember staring at it for a long time.*
 

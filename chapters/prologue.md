@@ -30,7 +30,9 @@ He waited until the room had mostly settled, until the side conversations had st
 
 I waited.
 
-*"Ezekiel 38. Word for word."*
+*"Ezekiel 38."*
+
+He let it sit there.
 
 Quiet laugh from one end of the table. Someone else smiled politely. The Deputy National Security Advisor was already on his phone.
 
