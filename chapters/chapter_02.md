@@ -222,17 +222,13 @@ The energy leverage Moscow had cultivated across decades — the careful positio
 
 In Beijing, a parallel calculation was underway. China's Belt and Road initiative — the most ambitious infrastructure investment program in modern history, designed to secure trade routes and resource access across Eurasia — was being intersected at a critical node. The Middle East was where Belt and Road met the energy supply that powered China's industrial economy. A regional security architecture controlled by an American-backed Israel meant that China's access to that energy would be mediated through a power structure aligned against Chinese strategic interests.
 
-Both capitals understood, with the precision that comes from running the same models through the same strategic frameworks, that a prosperous, secure, regionally dominant Israel — dwelling safely, as my midnight research into Ezekiel would later describe it, at the center of a new order — was an outcome that could not be permitted to stand indefinitely.
+Both capitals understood, with the precision that comes from running the same models through the same strategic frameworks, that a prosperous, secure, regionally dominant Israel at the center of a new order — an order that systematically excluded them from the most strategically valuable region on earth — was an outcome that could not be permitted to stand indefinitely.
 
 They would need to do something about it.
 
 Not yet. The integration was not complete. The dependencies were still forming. The architecture was in construction, not operation. Premature action risked galvanizing the very consolidation it sought to prevent.
 
-But the window for action would not stay open forever. Both capitals knew this. And both were beginning, quietly and methodically, to plan for the moment when the cost of inaction exceeded the cost of confrontation.
-
-I did not know, when I wrote my assessment of Russian and Chinese strategic responses for the firm's quarterly report in July of 2026, that I was describing the early stages of a coalition that an ancient text had named thousands of years before any of these nations existed in their current form.
-
-I would learn that later. At two in the morning. With Ezekiel open on my laptop and the growing, impossible sense that the pattern I was following had been described by someone who had seen the destination long before the road was built.
+But the window for action would not stay open forever.
 
 ---
 
