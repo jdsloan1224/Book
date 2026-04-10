@@ -2,6 +2,12 @@
 
 ---
 
+I closed the Ezekiel tab eventually. Not because I'd resolved anything — I hadn't — but because I know myself well enough to recognize when I'm no longer analyzing and have started reaching. The pattern I'd found was either the most important thing I'd ever encountered or the most elaborate coincidence, and at three in the morning I was not equipped to determine which. What I was equipped to do was return to the analytical record — to the data I could verify, the mechanisms I could trace, the decisions made by identifiable people in documented rooms. If the pattern was real, it would hold up when examined from the ground level. If it was noise, the ground-level evidence would show me where the parallel broke down.
+
+So I went back to the beginning. Not the Biblical beginning. The geopolitical one.
+
+---
+
 America does not announce when it stops being an empire.
 
 It just starts sending invoices.
