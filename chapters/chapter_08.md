@@ -30,7 +30,25 @@ By the time it occurs, a generation has grown up in a world where the question w
 
 The answer arrives faster than the managed timeline suggested. The crawl was designed to pace acceptance, but the event itself does not wait for the pace to complete. It arrives into a world that is mostly ready — and the portion that isn't becomes ready within days.
 
-Because of the demonstrations.
+Because something happens first that the world is not ready for. And the framework built by decades of disclosure is what makes it survivable.
+
+---
+
+People disappear.
+
+Not metaphorically. Not in the managed, explicable way that governments can process and media can contextualize. Millions of people, across every nation, every demographic, every time zone — gone. Simultaneously. Without warning, without wreckage, without the physical evidence that accompanies every other form of mass disappearance the world has ever recorded.
+
+The event is instantaneous. 1 Thessalonians 4:16-17 describes it: the Lord descends, the dead in Christ rise first, and then those who are alive and remain are caught up together with them in the clouds to meet the Lord in the air. The Greek word is *harpazo* — seized, snatched away, taken by force. Not a gentle departure. A removal.
+
+The world that remains does not have the framework to process what has happened — or rather, it has exactly one framework available, and it is the one that has been under construction for decades. The UAP disclosure, the managed normalization of non-human intelligence, the cultural conditioning that prepared a global population to accept contact with beings possessing technology beyond human capability — all of it now provides the only explanation the world can reach for. The disappearances are not divine. They are technological. The beings whose existence has been officially acknowledged, whose capabilities have been demonstrated to exceed anything human science can produce, have acted. The specifics can be debated — abduction, translocation, a demonstration of capability — but the framework absorbs the event without requiring the explanation the event actually carries.
+
+The one explanation the world will not reach for is the one that is true: that God has removed His people from the earth before the period of wrath that the prophetic texts describe as the tribulation. 1 Thessalonians 5:9 is explicit: God did not appoint us to suffer wrath but to receive salvation. Revelation 3:10 promises deliverance not merely from the trials but from the *hour* of trial — the time period itself. The church is not protected through the tribulation. It is removed before the tribulation begins.
+
+2 Thessalonians 2:6-8 describes the mechanism in terms that become legible only after the event: the restrainer — the presence that has been holding back the full manifestation of the lawless one — is taken out of the way. And *then* the lawless one is revealed. The removal and the revelation are sequenced. The restrainer's departure is the precondition for what follows.
+
+The world does not understand this. The world has a different explanation, provided by the very framework the deception was designed to install. And the world accepts that explanation, because the alternative — that the ancient texts were right, that the God they dismissed is real, that the people who vanished were taken by the one they worshipped — is more difficult to accept than the technological explanation that the culture has spent decades preparing them to reach for.
+
+The demonstrations begin shortly after. And they are not ambiguous.
 
 ---
 
