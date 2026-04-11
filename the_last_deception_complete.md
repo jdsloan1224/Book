@@ -1367,15 +1367,31 @@ A sequence of events that produced, against historical probability, exactly the 
 
 I laid a sheet of paper on the table. Wrote: *Israel restored as a nation — 1948.* Drew a check mark.
 
+I want to describe what drawing that check mark felt like, because this is the moment when the exercise stopped being academic and became personal.
+
+I had been trained — by education, by professional culture, by twenty-two years of analytical discipline — to treat ancient texts as historical artifacts. Interesting. Culturally significant. Not operationally relevant. The idea that a passage written in the sixth century BCE by a Hebrew prophet in Babylonian exile could describe a political event in 1948 with the specificity to warrant a check mark on an analyst's worksheet — that idea, stated plainly, sounded like the kind of reasoning I had spent my career distinguishing myself from.
+
+But I was not applying theological reasoning. I was applying the same methodology I used for every other assessment: does the evidence match the model? The text said the nation would be scattered and restored. The nation was scattered for nineteen centuries and restored in 1948. The correspondence was not interpretive. It was factual.
+
+I drew the check mark. And something shifted. Not a dramatic conversion. More like the moment when you're assembling a puzzle and you place the piece that makes the image recognizable for the first time. You can still see the individual pieces. But you can also see what they're forming.
+
 Every other generation that believed the end was near was looking at a partially assembled stage and projecting completion. This generation has the foundation. The one condition that required something extraordinary to produce and that could not be spiritualized or metaphorized away. A nation, restored, in the land, after two thousand years.
 
 ---
 
 Jerusalem followed. I put the second sheet down.
 
-The city had been divided since 1948, the eastern portion including the Old City and the Temple Mount under Jordanian control. In June 1967, in six days of combat that military historians still study as one of the most operationally remarkable campaigns in modern warfare, Israel captured the Old City.
+The city had been divided since 1948, the eastern portion including the Old City and the Temple Mount under Jordanian control. In June 1967, in six days of combat that military historians still study as one of the most operationally astonishing campaigns in modern warfare, Israel captured the West Bank, the Golan Heights, the Sinai Peninsula, and — the moment that carried weight beyond military analysis — the Old City of Jerusalem.
 
-An Israeli paratrooper's radio transmission on June 7 — "The Temple Mount is in our hands" — was the announcement of a prophetic threshold being crossed. Luke 21:24 describes Jerusalem being trampled by the Gentiles until the times of the Gentiles are fulfilled. Whatever the theological debates about the exact meaning of that phrase, the physical fact was specific: Jerusalem under Jewish sovereignty for the first time in two thousand years.
+The Six-Day War deserves a moment of attention from an analytical perspective, because what happened in those six days is difficult to explain through conventional military assessment alone. Israel was facing a coalition of Egypt, Syria, and Jordan, with contingents from Iraq, backed by Soviet weaponry and advisement. The combined Arab forces significantly outnumbered the Israeli military in troops, tanks, and aircraft. The strategic situation on June 4, 1967, assessed by any standard military model, was unfavorable for Israel — surrounded on three sides, with limited strategic depth, facing armies that had been mobilizing for weeks.
+
+In six days, Israel destroyed the Egyptian air force on the ground in a preemptive strike that caught hundreds of aircraft still on their runways. It routed the Egyptian army in the Sinai. It took the Golan Heights from Syria. And it captured the entire West Bank, including the Old City of Jerusalem, from Jordan.
+
+Military historians have studied this campaign extensively, and the operational explanations — surprise, superior training, better intelligence, decisive leadership — account for much of the outcome. But there is a residual that the purely operational analysis does not comfortably close. The speed. The comprehensiveness. The fact that a nation facing existential threat from multiple directions simultaneously achieved total victory in less than a week, with casualty ratios that military science struggles to model.
+
+I recognize that residual. It is the same gap I identified in Chapter 1, describing Israel's performance in the 2023-2026 campaigns. The gap between what the inputs predict and what the outcomes demonstrate.
+
+An Israeli paratrooper's radio transmission on June 7 — "The Temple Mount is in our hands" — was not just a military report. It was the announcement of a prophetic threshold being crossed. Luke 21:24 describes Jerusalem being trampled by the Gentiles until the times of the Gentiles are fulfilled. Whatever the theological debates about the exact meaning of that phrase, the physical fact was specific: Jerusalem under Jewish sovereignty for the first time in two thousand years.
 
 *Jerusalem under Israeli sovereignty — 1967.* Check.
 
@@ -1461,7 +1477,29 @@ I did not sleep well that Saturday night. I lay in bed running through the inven
 
 The flaw did not appear.
 
-On Sunday morning I made coffee and sat at the table — still covered in paper — and wrote a single sentence on a blank sheet. I placed it in the center.
+I called my wife on Sunday morning. She asked how my weekend was going. I said fine. She asked what I'd been working on. I said research. She heard something in my voice — she has always been better at reading me than I am at concealing what I'm thinking — and asked what was wrong.
+
+I told her I'd been working through some material that was taking me in a direction I hadn't expected. That I wasn't ready to describe it fully yet but that it was going to change the shape of something I'd been working on. She was quiet for a moment and then said, "The Ezekiel thing?"
+
+I hadn't told her much about the Ezekiel research. I had mentioned it once, briefly, months earlier, and she had listened with the patient attention of a woman married to a man who periodically becomes consumed by intellectual problems that don't make sense to anyone who doesn't live inside the problem. She hadn't asked about it since.
+
+"Yes," I said. "The Ezekiel thing."
+
+"Is it real?"
+
+I sat at the table — still covered in paper, the coffee going cold beside a legal pad full of check marks — and thought about how to answer that question honestly. My wife is not an analyst. She does not process the world through frameworks and pattern recognition and structured assessment. She processes it through a directness that I have spent twenty-two years admiring and occasionally envying.
+
+"I think it might be," I said.
+
+She was quiet again. Then: "Then you have to write it."
+
+I understood what she meant. Not just the professional obligation — the analyst's duty to follow the evidence regardless of where it leads. She meant the personal obligation. If the pattern was real — if the correspondence between the ancient texts and the observable world was as specific and structural as the weekend's inventory had demonstrated — then sitting on it was not analytical caution. It was cowardice.
+
+I also understood what writing it would cost. I had spent two decades building a professional reputation on rigorous, evidence-based analysis delivered within frameworks that serious people took seriously. Publishing a book that traced a line from geopolitical assessment through intelligence analysis through UAP evidence to Biblical prophecy would not be received as an extension of that reputation. It would be received as the end of it.
+
+I sat with that for a while.
+
+Then I made more coffee and sat at the table and wrote a single sentence on a blank sheet. I placed it in the center.
 
 *The stage is not being built anymore. It is built.*
 
@@ -1469,7 +1507,7 @@ Then I wrote a second sentence beneath it.
 
 *What comes next is the actor the stage was built for.*
 
-I stared at those two sentences for a long time. Then I got up, made more coffee, and started writing what would eventually become this book.
+I stared at those two sentences for a long time. Then I started writing what would eventually become this book. Not because it was safe. Because the evidence required it. And because my wife was right — if it was real, then sitting on it was the one thing I could not justify.
 
 ---
 
@@ -1701,13 +1739,41 @@ The narrative forms quickly, because narratives always do when a consensus needs
 
 The economic exclusion follows the social, and it follows with a logic that requires no official mandate to implement.
 
+Let me describe what it looks like at the human scale, because the structural analysis is accurate but abstract, and abstraction is a way of not feeling what the words describe.
+
+A woman walks into a grocery store. She has done this ten thousand times in her life. She selects food — bread, vegetables, milk for her children. She walks to the checkout. She reaches for her payment method and discovers that the system does not recognize her. Not that her account is empty. That she does not exist in the system. The terminal does not decline her transaction. It does not see her. She is not a person with insufficient funds. She is a person without credentials. The food in her arms might as well be on another planet.
+
+The cashier is not hostile. The cashier is confused, then uncomfortable, then — as the line builds behind the woman and the nature of the problem becomes clear — sympathetic in the way that people are sympathetic to someone experiencing a misfortune they cannot help with and do not want to think about too carefully. The woman puts the food down and walks out. Her children are at home.
+
+This scene, multiplied across every transaction that constitutes participation in a modern economy — food, housing, transportation, medical care, communication — is what the refusal of the mark produces. Not a single dramatic act of persecution. A thousand daily exclusions that accumulate into the impossibility of normal life.
+
 The access control architecture that the mark provides is the infrastructure of daily life — financial transactions, movement, participation in the systems of food distribution and energy access and medical care that the technology has created. The unenrolled cannot use what they do not have credentials for. The exclusion is not punishment. It is the structural consequence of not being enrolled in a system that everyone else is enrolled in.
 
-This is the architecture described in Chapter 4 — the AI-controlled infrastructure, the digital financial systems, the biometric access control — operating at civilizational scale and with a supernatural origin story attached. Nobody is arrested for refusing the mark. They simply find that the world is organized around participation in a system they are not part of. The enrolled don't need to persecute them. The architecture does it structurally, through the accumulated weight of a thousand daily transactions that require what they don't have.
+This is the architecture described in Chapter 4 — the AI-controlled infrastructure, the digital financial systems, the biometric access control — operating at civilizational scale and with a supernatural origin story attached. Nobody is arrested for refusing the mark, at least not initially. They simply find that the world is organized around participation in a system they are not part of. The enrolled don't need to persecute them. The architecture does it structurally, through the accumulated weight of a thousand daily transactions that require what they don't have.
 
-The remnant's practical response is the reconstruction, at the margins of the new order, of the networks of mutual provision that their communities have always maintained in times of exclusion. The Jewish tradition carries two thousand years of practiced experience with exactly this — maintaining community, transmitting faith, providing for one another under conditions of systematic exclusion from the surrounding society. The Christian communities of the first centuries developed the same infrastructure under Roman persecution. The Islamic tradition carries its own memory of community under pressure.
+---
 
-The traditions have the institutional muscle memory. It is painful and difficult and costly. It is not impossible. Not yet.
+Let me describe one more scene, because it illustrates how the remnant grows even under conditions designed to prevent its growth.
+
+A man — call him David, because I want him to have a name even in a projected narrative — lost his wife in the disappearances. She was a believer. He was not. He had listened to her talk about her faith for years with the patient tolerance of a man who loved his wife and considered her beliefs a harmless eccentricity that he did not share. She had tried to explain what she believed was coming. He had nodded. He had not listened.
+
+She is gone now. Along with their youngest daughter, who was seven and who had prayed at bedtime with the sincerity that children bring to things they have not yet learned to doubt.
+
+David stands in his wife's home office three days after the disappearances. The world outside is in managed chaos — the explanations are already forming, the UAP framework is absorbing the event, the demonstrations have begun. He is not processing any of that. He is looking at his wife's bookshelf. At the Bible she kept on the corner of her desk, the one with the worn cover and the pages marked with colored tabs.
+
+He opens it. Not because he believes. Because she is gone and the book is what she left.
+
+He reads. And what he reads describes, with a specificity that his grief does not allow him to dismiss, the world he is standing in. The disappearances. The entity that will arrive. The demonstrations. The mark. The persecution. The ending.
+
+David becomes part of the remnant. Not because he was prepared. Because the text his wife tried to show him turns out to describe exactly what happened to her and exactly what is happening to him. The proof she could never provide in life — that the book was true, that the sequence was real — has been provided by her absence.
+
+This is how the remnant grows. One person at a time, in the aftermath of loss, through the texts that the vanished left behind.
+
+---
+
+The remnant's practical response is the reconstruction, at the margins of the new order, of the networks of mutual provision that faith communities have always maintained in times of exclusion. The Jewish tradition carries two thousand years of practiced experience with exactly this — maintaining community, transmitting faith, providing for one another under conditions of systematic exclusion from the surrounding society. The early church of the first centuries developed the same infrastructure under Roman persecution. The traditions have institutional muscle memory.
+
+It is painful and difficult and costly. It is not impossible. Not yet.
 
 ---
 
@@ -1833,13 +1899,33 @@ I need to be honest about this transition because the book's credibility depends
 
 But what Ezekiel describes next is not a geopolitical event. It is a supernatural one.
 
-Ezekiel 38:18-23. A great earthquake. Every wall falling to the ground. The coalition turning on itself — sword against sword. Pestilence. Torrential rain. Hailstones. Fire and sulfur. The attacking force destroyed — not by Israeli military capability, not by American intervention, not by any human agency. By direct divine intervention of a scope and visibility that the text describes as self-interpreting. The nations will know, after this, that the God of Israel is who He says He is.
+Ezekiel 38:18-23. I want to slow down here, because this is the most dramatic passage in the entire prophetic literature, and it deserves to be read at the pace its content demands.
 
-The secular world has frameworks for everything that precedes this moment. It has frameworks for the regional realignment, the intelligence operations, the technology dependencies, the economic integration, even — increasingly — for the non-human presence that UAP disclosure has been normalizing. What it does not have a framework for is direct divine intervention at a scale that is publicly visible and physically undeniable.
+The coalition moves south. The largest military force assembled against Israel in the modern era — Russian strategic capability, Chinese industrial depth, Iranian desire for retribution, and the additional coalition members providing geographic and logistical support — advances on a nation that has been dwelling in *betach*, at rest, confident in the security architecture described across the first three chapters of this book.
 
-The strong delusion will provide one. The entity on the Temple Mount — the one who has claimed to be humanity's creator, who has demonstrated power, who has constructed the access architecture the world is enrolled in — will have an explanation. He will provide it. And the world, having already accepted his account of human origins and cosmic history, will accept this explanation too.
+And then the response comes. Not from Israel. Not from the American backstop. Not from any human military agency.
 
-The remnant will know what actually happened. The text they carry describes it.
+A great earthquake — not localized, not the geological event that the region periodically experiences, but something that affects the entire theater of operations. Every wall falls. The physical infrastructure of the advance collapses. The coalition's command and control, its logistics, its ability to coordinate the multinational force it has assembled — all of it disrupted simultaneously by an event that no military planning can account for because it is not a military event.
+
+The coalition turns on itself. Sword against sword — the multinational force, assembled from nations with deep mutual suspicions held together only by shared strategic desperation, fractures. The Russian units and the Chinese units and the Iranian remnants, stripped of coordination and communications, begin treating each other as threats. The alliance, which was always a marriage of convenience rather than genuine partnership, disintegrates under the pressure of chaos it was not designed to absorb.
+
+Pestilence. Torrential rain. Hailstones of a size and destructive force that the meteorological record has no category for. Fire and sulfur — language that has been debated across centuries of commentary but whose effect, whatever its precise mechanism, is the comprehensive destruction of the attacking force.
+
+The coalition is destroyed. Not defeated — destroyed. The distinction matters. A defeated army retreats, regroups, potentially returns. A destroyed army is consumed. Ezekiel 39 describes the aftermath: seven months of burying the dead. Seven years of burning the abandoned weaponry. The scale of the destruction is total.
+
+And the world watches. In an era of satellite coverage, drone surveillance, and global media infrastructure, the destruction of the largest military coalition assembled in the modern era — destroyed not by a counterattack but by events that no human agency produced — is witnessed by billions of people in real time. The footage is unambiguous. The satellite imagery is unambiguous. The absence of any Israeli or American military action is unambiguous.
+
+Something acted. And it was not human.
+
+The secular world, which has frameworks for everything that preceded this moment, does not have a framework for this. It has frameworks for the regional realignment, the intelligence operations, the technology dependencies, the economic integration, even for the non-human presence that UAP disclosure has normalized. What it does not have a framework for is direct divine intervention at a scale that is publicly visible, physically undeniable, and impossible to attribute to any known actor or technology.
+
+The strong delusion provides one. The entity on the Temple Mount — the one who has claimed to be humanity's creator, who has demonstrated power, who has constructed the access architecture the world is enrolled in — offers an explanation. His technology. His intervention. His protection of the species he created, against a coalition that threatened the order he established. The explanation is consistent with the framework the world has already accepted. It requires no new assumptions. It fits.
+
+The remnant knows the explanation is false. The text they carry — Ezekiel 38 and 39, written twenty-six centuries before the event — describes not just the attack and the intervention but its author. And the author is not the entity on the Temple Mount. The author is the God of Israel, acting to make Himself known to the nations through an intervention that leaves no room for alternative explanation to anyone reading the text that predicted it.
+
+The remnant reads Ezekiel 39:7: *My holy name I will make known in the midst of my people Israel, and I will not let my holy name be profaned anymore. And the nations shall know that I am the Lord, the Holy One in Israel.*
+
+The nations shall know. Not through argument. Not through theology. Through an event so large and so specific that the text describing it in advance becomes its own proof.
 
 ---
 
@@ -1879,7 +1965,13 @@ The Antichrist's reign has a timeline and a termination. The sequence described 
 
 Revelation 19 describes the return. A white horse. A rider called Faithful and True. Eyes like fire. A name that no one knows but himself. The armies of heaven following — and those armies include the church, the believers removed from the earth before the tribulation began, now returning with Christ to the world they were taken from. The saints who were caught up in the air now descend with the one who caught them. And from his mouth a sharp sword — not metaphor in the sense of being insubstantial, but the word of the one who spoke creation into existence, which does not require the infrastructure through which human power operates.
 
-The Antichrist and the false prophet are thrown into the lake of fire. The armies assembled against the returning one are destroyed. The reign ends not with a negotiated settlement, not with a political transition, not with the slow erosion that concludes most human regimes. It ends with the arrival of the one thing the deception was designed to replace and could not.
+The return is not an event that can be missed, reinterpreted, or absorbed into the Antichrist's framework. Matthew 24:27 describes it: as lightning comes from the east and shines as far as the west, so will be the coming of the Son of Man. Not managed. Not gradual. Not disclosed through controlled channels at a pace designed to produce acceptance. Instantaneous, total, visible to the entire earth simultaneously.
+
+The Antichrist, who arrived through the careful architecture of managed disclosure and cultural conditioning — who was introduced to a population that had been prepared across decades to receive him — is now confronted by an arrival that required no preparation. No cultural conditioning. No managed crawl. The real thing does not need the world to be ready for it. It arrives on its own authority, in its own time, and the world's readiness is irrelevant.
+
+The Antichrist and the false prophet are thrown into the lake of fire. The armies assembled against the returning one are destroyed. The systems of control — the mark, the access architecture, the AI-controlled infrastructure that managed enrollment and exclusion — collapse. Not gradually, not through political transition, but completely, as the power source behind them is removed and judged.
+
+The reign ends. The deception is finished. The entity that presented itself as creator and benefactor is revealed, finally and publicly, as what the ancient texts always said it was. And the one whose identity it counterfeited stands in the place where the counterfeit stood, and the difference is the difference between everything and nothing.
 
 ---
 
@@ -1924,6 +2016,20 @@ I want to close this book the way I opened it — as an analyst, speaking honest
 I started this process as a man who trusted data over narrative, who had built a career on the disciplined refusal to reach conclusions the evidence didn't support, who would have dismissed the entire project described in these pages if someone had described it to me before I undertook it.
 
 The evidence took me somewhere I did not expect to go. The geopolitical analysis led to the prophetic parallels. The prophetic parallels led to the UAP evidence. The UAP evidence led to the theological framework. The theological framework led to a conclusion that I resisted with every tool my professional training provided — and that held against every test I applied.
+
+I think about Ellison sometimes — the man whose two words in a briefing room started this. I called him in October of 2026, after I had been working on this material for months. I told him what I'd found. I told him where the data had taken me. I told him I was writing something that would end my career as a credible analyst if I published it, and that I was going to publish it anyway.
+
+He was quiet for a long time. Then he said, "I wondered if you'd get there."
+
+I asked him how long he had known.
+
+"Known is a strong word," he said. "Suspected. For about fifteen years. The pattern was there. I just didn't have the analytical framework to describe it in terms that the people I briefed would take seriously. You might."
+
+I asked him why he hadn't told me directly, instead of dropping a two-word reference in a briefing room and letting me find it on my own.
+
+He laughed — the first time I'd heard Ellison laugh in all the years I'd known him. "Because if I had told you, you would have dismissed it. You had to find it yourself. That's how evidence works. You know that better than anyone."
+
+He was right. He usually was.
 
 The pattern is real. The convergence between the ancient texts and the observable world is specific, structural, and extensive enough that dismissing it as coincidence requires a greater act of faith than accepting it as design.
 

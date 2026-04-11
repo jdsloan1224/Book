@@ -84,13 +84,33 @@ I need to be honest about this transition because the book's credibility depends
 
 But what Ezekiel describes next is not a geopolitical event. It is a supernatural one.
 
-Ezekiel 38:18-23. A great earthquake. Every wall falling to the ground. The coalition turning on itself — sword against sword. Pestilence. Torrential rain. Hailstones. Fire and sulfur. The attacking force destroyed — not by Israeli military capability, not by American intervention, not by any human agency. By direct divine intervention of a scope and visibility that the text describes as self-interpreting. The nations will know, after this, that the God of Israel is who He says He is.
+Ezekiel 38:18-23. I want to slow down here, because this is the most dramatic passage in the entire prophetic literature, and it deserves to be read at the pace its content demands.
 
-The secular world has frameworks for everything that precedes this moment. It has frameworks for the regional realignment, the intelligence operations, the technology dependencies, the economic integration, even — increasingly — for the non-human presence that UAP disclosure has been normalizing. What it does not have a framework for is direct divine intervention at a scale that is publicly visible and physically undeniable.
+The coalition moves south. The largest military force assembled against Israel in the modern era — Russian strategic capability, Chinese industrial depth, Iranian desire for retribution, and the additional coalition members providing geographic and logistical support — advances on a nation that has been dwelling in *betach*, at rest, confident in the security architecture described across the first three chapters of this book.
 
-The strong delusion will provide one. The entity on the Temple Mount — the one who has claimed to be humanity's creator, who has demonstrated power, who has constructed the access architecture the world is enrolled in — will have an explanation. He will provide it. And the world, having already accepted his account of human origins and cosmic history, will accept this explanation too.
+And then the response comes. Not from Israel. Not from the American backstop. Not from any human military agency.
 
-The remnant will know what actually happened. The text they carry describes it.
+A great earthquake — not localized, not the geological event that the region periodically experiences, but something that affects the entire theater of operations. Every wall falls. The physical infrastructure of the advance collapses. The coalition's command and control, its logistics, its ability to coordinate the multinational force it has assembled — all of it disrupted simultaneously by an event that no military planning can account for because it is not a military event.
+
+The coalition turns on itself. Sword against sword — the multinational force, assembled from nations with deep mutual suspicions held together only by shared strategic desperation, fractures. The Russian units and the Chinese units and the Iranian remnants, stripped of coordination and communications, begin treating each other as threats. The alliance, which was always a marriage of convenience rather than genuine partnership, disintegrates under the pressure of chaos it was not designed to absorb.
+
+Pestilence. Torrential rain. Hailstones of a size and destructive force that the meteorological record has no category for. Fire and sulfur — language that has been debated across centuries of commentary but whose effect, whatever its precise mechanism, is the comprehensive destruction of the attacking force.
+
+The coalition is destroyed. Not defeated — destroyed. The distinction matters. A defeated army retreats, regroups, potentially returns. A destroyed army is consumed. Ezekiel 39 describes the aftermath: seven months of burying the dead. Seven years of burning the abandoned weaponry. The scale of the destruction is total.
+
+And the world watches. In an era of satellite coverage, drone surveillance, and global media infrastructure, the destruction of the largest military coalition assembled in the modern era — destroyed not by a counterattack but by events that no human agency produced — is witnessed by billions of people in real time. The footage is unambiguous. The satellite imagery is unambiguous. The absence of any Israeli or American military action is unambiguous.
+
+Something acted. And it was not human.
+
+The secular world, which has frameworks for everything that preceded this moment, does not have a framework for this. It has frameworks for the regional realignment, the intelligence operations, the technology dependencies, the economic integration, even for the non-human presence that UAP disclosure has normalized. What it does not have a framework for is direct divine intervention at a scale that is publicly visible, physically undeniable, and impossible to attribute to any known actor or technology.
+
+The strong delusion provides one. The entity on the Temple Mount — the one who has claimed to be humanity's creator, who has demonstrated power, who has constructed the access architecture the world is enrolled in — offers an explanation. His technology. His intervention. His protection of the species he created, against a coalition that threatened the order he established. The explanation is consistent with the framework the world has already accepted. It requires no new assumptions. It fits.
+
+The remnant knows the explanation is false. The text they carry — Ezekiel 38 and 39, written twenty-six centuries before the event — describes not just the attack and the intervention but its author. And the author is not the entity on the Temple Mount. The author is the God of Israel, acting to make Himself known to the nations through an intervention that leaves no room for alternative explanation to anyone reading the text that predicted it.
+
+The remnant reads Ezekiel 39:7: *My holy name I will make known in the midst of my people Israel, and I will not let my holy name be profaned anymore. And the nations shall know that I am the Lord, the Holy One in Israel.*
+
+The nations shall know. Not through argument. Not through theology. Through an event so large and so specific that the text describing it in advance becomes its own proof.
 
 ---
 

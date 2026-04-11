@@ -18,7 +18,13 @@ The Antichrist's reign has a timeline and a termination. The sequence described 
 
 Revelation 19 describes the return. A white horse. A rider called Faithful and True. Eyes like fire. A name that no one knows but himself. The armies of heaven following — and those armies include the church, the believers removed from the earth before the tribulation began, now returning with Christ to the world they were taken from. The saints who were caught up in the air now descend with the one who caught them. And from his mouth a sharp sword — not metaphor in the sense of being insubstantial, but the word of the one who spoke creation into existence, which does not require the infrastructure through which human power operates.
 
-The Antichrist and the false prophet are thrown into the lake of fire. The armies assembled against the returning one are destroyed. The reign ends not with a negotiated settlement, not with a political transition, not with the slow erosion that concludes most human regimes. It ends with the arrival of the one thing the deception was designed to replace and could not.
+The return is not an event that can be missed, reinterpreted, or absorbed into the Antichrist's framework. Matthew 24:27 describes it: as lightning comes from the east and shines as far as the west, so will be the coming of the Son of Man. Not managed. Not gradual. Not disclosed through controlled channels at a pace designed to produce acceptance. Instantaneous, total, visible to the entire earth simultaneously.
+
+The Antichrist, who arrived through the careful architecture of managed disclosure and cultural conditioning — who was introduced to a population that had been prepared across decades to receive him — is now confronted by an arrival that required no preparation. No cultural conditioning. No managed crawl. The real thing does not need the world to be ready for it. It arrives on its own authority, in its own time, and the world's readiness is irrelevant.
+
+The Antichrist and the false prophet are thrown into the lake of fire. The armies assembled against the returning one are destroyed. The systems of control — the mark, the access architecture, the AI-controlled infrastructure that managed enrollment and exclusion — collapse. Not gradually, not through political transition, but completely, as the power source behind them is removed and judged.
+
+The reign ends. The deception is finished. The entity that presented itself as creator and benefactor is revealed, finally and publicly, as what the ancient texts always said it was. And the one whose identity it counterfeited stands in the place where the counterfeit stood, and the difference is the difference between everything and nothing.
 
 ---
 
@@ -63,6 +69,20 @@ I want to close this book the way I opened it — as an analyst, speaking honest
 I started this process as a man who trusted data over narrative, who had built a career on the disciplined refusal to reach conclusions the evidence didn't support, who would have dismissed the entire project described in these pages if someone had described it to me before I undertook it.
 
 The evidence took me somewhere I did not expect to go. The geopolitical analysis led to the prophetic parallels. The prophetic parallels led to the UAP evidence. The UAP evidence led to the theological framework. The theological framework led to a conclusion that I resisted with every tool my professional training provided — and that held against every test I applied.
+
+I think about Ellison sometimes — the man whose two words in a briefing room started this. I called him in October of 2026, after I had been working on this material for months. I told him what I'd found. I told him where the data had taken me. I told him I was writing something that would end my career as a credible analyst if I published it, and that I was going to publish it anyway.
+
+He was quiet for a long time. Then he said, "I wondered if you'd get there."
+
+I asked him how long he had known.
+
+"Known is a strong word," he said. "Suspected. For about fifteen years. The pattern was there. I just didn't have the analytical framework to describe it in terms that the people I briefed would take seriously. You might."
+
+I asked him why he hadn't told me directly, instead of dropping a two-word reference in a briefing room and letting me find it on my own.
+
+He laughed — the first time I'd heard Ellison laugh in all the years I'd known him. "Because if I had told you, you would have dismissed it. You had to find it yourself. That's how evidence works. You know that better than anyone."
+
+He was right. He usually was.
 
 The pattern is real. The convergence between the ancient texts and the observable world is specific, structural, and extensive enough that dismissing it as coincidence requires a greater act of faith than accepting it as design.
 

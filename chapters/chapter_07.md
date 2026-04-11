@@ -42,15 +42,31 @@ A sequence of events that produced, against historical probability, exactly the 
 
 I laid a sheet of paper on the table. Wrote: *Israel restored as a nation — 1948.* Drew a check mark.
 
+I want to describe what drawing that check mark felt like, because this is the moment when the exercise stopped being academic and became personal.
+
+I had been trained — by education, by professional culture, by twenty-two years of analytical discipline — to treat ancient texts as historical artifacts. Interesting. Culturally significant. Not operationally relevant. The idea that a passage written in the sixth century BCE by a Hebrew prophet in Babylonian exile could describe a political event in 1948 with the specificity to warrant a check mark on an analyst's worksheet — that idea, stated plainly, sounded like the kind of reasoning I had spent my career distinguishing myself from.
+
+But I was not applying theological reasoning. I was applying the same methodology I used for every other assessment: does the evidence match the model? The text said the nation would be scattered and restored. The nation was scattered for nineteen centuries and restored in 1948. The correspondence was not interpretive. It was factual.
+
+I drew the check mark. And something shifted. Not a dramatic conversion. More like the moment when you're assembling a puzzle and you place the piece that makes the image recognizable for the first time. You can still see the individual pieces. But you can also see what they're forming.
+
 Every other generation that believed the end was near was looking at a partially assembled stage and projecting completion. This generation has the foundation. The one condition that required something extraordinary to produce and that could not be spiritualized or metaphorized away. A nation, restored, in the land, after two thousand years.
 
 ---
 
 Jerusalem followed. I put the second sheet down.
 
-The city had been divided since 1948, the eastern portion including the Old City and the Temple Mount under Jordanian control. In June 1967, in six days of combat that military historians still study as one of the most operationally remarkable campaigns in modern warfare, Israel captured the Old City.
+The city had been divided since 1948, the eastern portion including the Old City and the Temple Mount under Jordanian control. In June 1967, in six days of combat that military historians still study as one of the most operationally astonishing campaigns in modern warfare, Israel captured the West Bank, the Golan Heights, the Sinai Peninsula, and — the moment that carried weight beyond military analysis — the Old City of Jerusalem.
 
-An Israeli paratrooper's radio transmission on June 7 — "The Temple Mount is in our hands" — was the announcement of a prophetic threshold being crossed. Luke 21:24 describes Jerusalem being trampled by the Gentiles until the times of the Gentiles are fulfilled. Whatever the theological debates about the exact meaning of that phrase, the physical fact was specific: Jerusalem under Jewish sovereignty for the first time in two thousand years.
+The Six-Day War deserves a moment of attention from an analytical perspective, because what happened in those six days is difficult to explain through conventional military assessment alone. Israel was facing a coalition of Egypt, Syria, and Jordan, with contingents from Iraq, backed by Soviet weaponry and advisement. The combined Arab forces significantly outnumbered the Israeli military in troops, tanks, and aircraft. The strategic situation on June 4, 1967, assessed by any standard military model, was unfavorable for Israel — surrounded on three sides, with limited strategic depth, facing armies that had been mobilizing for weeks.
+
+In six days, Israel destroyed the Egyptian air force on the ground in a preemptive strike that caught hundreds of aircraft still on their runways. It routed the Egyptian army in the Sinai. It took the Golan Heights from Syria. And it captured the entire West Bank, including the Old City of Jerusalem, from Jordan.
+
+Military historians have studied this campaign extensively, and the operational explanations — surprise, superior training, better intelligence, decisive leadership — account for much of the outcome. But there is a residual that the purely operational analysis does not comfortably close. The speed. The comprehensiveness. The fact that a nation facing existential threat from multiple directions simultaneously achieved total victory in less than a week, with casualty ratios that military science struggles to model.
+
+I recognize that residual. It is the same gap I identified in Chapter 1, describing Israel's performance in the 2023-2026 campaigns. The gap between what the inputs predict and what the outcomes demonstrate.
+
+An Israeli paratrooper's radio transmission on June 7 — "The Temple Mount is in our hands" — was not just a military report. It was the announcement of a prophetic threshold being crossed. Luke 21:24 describes Jerusalem being trampled by the Gentiles until the times of the Gentiles are fulfilled. Whatever the theological debates about the exact meaning of that phrase, the physical fact was specific: Jerusalem under Jewish sovereignty for the first time in two thousand years.
 
 *Jerusalem under Israeli sovereignty — 1967.* Check.
 
@@ -136,7 +152,29 @@ I did not sleep well that Saturday night. I lay in bed running through the inven
 
 The flaw did not appear.
 
-On Sunday morning I made coffee and sat at the table — still covered in paper — and wrote a single sentence on a blank sheet. I placed it in the center.
+I called my wife on Sunday morning. She asked how my weekend was going. I said fine. She asked what I'd been working on. I said research. She heard something in my voice — she has always been better at reading me than I am at concealing what I'm thinking — and asked what was wrong.
+
+I told her I'd been working through some material that was taking me in a direction I hadn't expected. That I wasn't ready to describe it fully yet but that it was going to change the shape of something I'd been working on. She was quiet for a moment and then said, "The Ezekiel thing?"
+
+I hadn't told her much about the Ezekiel research. I had mentioned it once, briefly, months earlier, and she had listened with the patient attention of a woman married to a man who periodically becomes consumed by intellectual problems that don't make sense to anyone who doesn't live inside the problem. She hadn't asked about it since.
+
+"Yes," I said. "The Ezekiel thing."
+
+"Is it real?"
+
+I sat at the table — still covered in paper, the coffee going cold beside a legal pad full of check marks — and thought about how to answer that question honestly. My wife is not an analyst. She does not process the world through frameworks and pattern recognition and structured assessment. She processes it through a directness that I have spent twenty-two years admiring and occasionally envying.
+
+"I think it might be," I said.
+
+She was quiet again. Then: "Then you have to write it."
+
+I understood what she meant. Not just the professional obligation — the analyst's duty to follow the evidence regardless of where it leads. She meant the personal obligation. If the pattern was real — if the correspondence between the ancient texts and the observable world was as specific and structural as the weekend's inventory had demonstrated — then sitting on it was not analytical caution. It was cowardice.
+
+I also understood what writing it would cost. I had spent two decades building a professional reputation on rigorous, evidence-based analysis delivered within frameworks that serious people took seriously. Publishing a book that traced a line from geopolitical assessment through intelligence analysis through UAP evidence to Biblical prophecy would not be received as an extension of that reputation. It would be received as the end of it.
+
+I sat with that for a while.
+
+Then I made more coffee and sat at the table and wrote a single sentence on a blank sheet. I placed it in the center.
 
 *The stage is not being built anymore. It is built.*
 
@@ -144,7 +182,7 @@ Then I wrote a second sentence beneath it.
 
 *What comes next is the actor the stage was built for.*
 
-I stared at those two sentences for a long time. Then I got up, made more coffee, and started writing what would eventually become this book.
+I stared at those two sentences for a long time. Then I started writing what would eventually become this book. Not because it was safe. Because the evidence required it. And because my wife was right — if it was real, then sitting on it was the one thing I could not justify.
 
 ---
 
