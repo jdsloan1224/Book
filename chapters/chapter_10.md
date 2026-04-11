@@ -2,6 +2,10 @@
 
 ---
 
+While the remnant held — while the social pressure mounted and the economic exclusion tightened and the faithful communities rebuilt the ancient infrastructure of survival at the margins of the new order — the geopolitical logic that this book traced in its opening chapters was reaching its conclusion. The world described in Chapters 1 through 3 had not stopped operating because a figure stood on the Temple Mount. The strategic calculations that had been building since 2026 were still running. And they were about to produce exactly what a text written twenty-six centuries earlier said they would.
+
+---
+
 The men in that closed session in Beijing, looking at the map of a region that no longer served their interests, were not ideologues. They were strategists. And strategists, when they calculate that the cost of inaction exceeds the cost of action, act.
 
 The men in Moscow were running the same calculation.

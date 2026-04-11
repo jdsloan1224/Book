@@ -164,7 +164,9 @@ I did not sleep that night. But for the first time in months, the insomnia was n
 
 The stage was not being built anymore. It was built.
 
-The next chapter describes what was on it.
+Before I describe what comes onto that stage, I needed to see the stage whole — to lay out every piece and verify, with the rigor my training demanded, that what I was looking at was as complete as it appeared.
+
+The next chapter describes that inventory. What I found on my dining room table on a Saturday in September.
 
 ---
 

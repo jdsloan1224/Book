@@ -1311,7 +1311,9 @@ I did not sleep that night. But for the first time in months, the insomnia was n
 
 The stage was not being built anymore. It was built.
 
-The next chapter describes what was on it.
+Before I describe what comes onto that stage, I needed to see the stage whole — to lay out every piece and verify, with the rigor my training demanded, that what I was looking at was as complete as it appeared.
+
+The next chapter describes that inventory. What I found on my dining room table on a Saturday in September.
 
 ---
 
@@ -1720,6 +1722,10 @@ The remnant holds on. Not because holding is comfortable. Because the book was w
 ---
 
 # Chapter 10 — Gog and Magog
+
+---
+
+While the remnant held — while the social pressure mounted and the economic exclusion tightened and the faithful communities rebuilt the ancient infrastructure of survival at the margins of the new order — the geopolitical logic that this book traced in its opening chapters was reaching its conclusion. The world described in Chapters 1 through 3 had not stopped operating because a figure stood on the Temple Mount. The strategic calculations that had been building since 2026 were still running. And they were about to produce exactly what a text written twenty-six centuries earlier said they would.
 
 ---
 
