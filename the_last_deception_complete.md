@@ -1271,7 +1271,7 @@ And then verse 11, which is the most sobering sentence in the passage: God sends
 
 The strong delusion is not a metaphor. It is a specific condition — sent upon a specific population, at a specific moment, in response to a specific prior choice. The population is those who had the truth available to them and chose not to receive it. The delusion is the consequence of that choice, now made irresistible by divine permission.
 
-The word translated as "strong" in the original Greek — energeian — carries the sense of something energized, active, working. Not a passive state of confusion but a force that actively drives belief. A delusion so compelling that it does not merely mislead — it convinces. It satisfies. The people under it do not struggle to believe. They believe completely, enthusiastically, with the relief of people who have finally found the explanation that resolves everything they could not previously understand.
+The word translated as "strong" in most English versions — the underlying Greek is *energeian planēs*, a working of delusion — carries the sense of something energized, operative, active. Not a passive state of confusion but a force that actively drives belief. A delusion so compelling that it does not merely mislead — it convinces. It satisfies. The people under it do not struggle to believe. They believe completely, enthusiastically, with the relief of people who have finally found the explanation that resolves everything they could not previously understand.
 
 That is the most terrifying kind of deception. Not the kind that leaves doubt and thereby leaves a door open for reconsideration. The kind that removes doubt entirely. The kind that feels like truth.
 
